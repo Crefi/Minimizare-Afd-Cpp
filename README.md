@@ -1,0 +1,1 @@
+# Minimizare-Afd-C
